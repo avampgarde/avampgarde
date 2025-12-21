@@ -2,7 +2,7 @@
   <img src="https://pix.crd.co/assets/images/gallery22/1bd26129.gif?v=c10c78ee" />
 </p>
 
-![alt text](https://files.catbox.moe/yykb4c.png)
+![alt text](https://files.catbox.moe/9394fe.png)
 
 ## <center> 🦇 read my strwpg / sign ata pls & thanku <3 </center>
 
