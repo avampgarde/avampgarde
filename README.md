@@ -1,4 +1,4 @@
-![alt text](https://files.catbox.moe/y2n9at.png)
+![alt text](https://files.catbox.moe/l15xe6.png)
 
 <p align="center">
 <img src="https://i.postimg.cc/T2ZNHHcX/1125992098693398538.gif" /> 𝐫𝐞𝐚𝐝 𝐦𝐲 𝐬𝐭𝐫𝐰𝐩𝐠 / 𝐬𝐢𝐠𝐧 𝐚𝐭𝐚 𝐩𝐥𝐬 & 𝐭𝐡𝐚𝐧𝐤𝐮 <𝟑 <img src="https://i.postimg.cc/BbPgKh9M/IMG_1518.gif" />
