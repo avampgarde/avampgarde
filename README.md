@@ -1,7 +1,7 @@
-![alt text](https://files.catbox.moe/98pjn6.png)
-
 <p align="center">
 <img src="https://i.postimg.cc/T2ZNHHcX/1125992098693398538.gif" /> 𝐫𝐞𝐚𝐝 𝐦𝐲 𝐬𝐭𝐫𝐰𝐩𝐠 / 𝐥𝐞𝐚𝐯𝐞 𝐠𝐢𝐦𝐦𝐢𝐜𝐤𝐬 𝐩𝐥𝐬 & 𝐭𝐡𝐚𝐧𝐤𝐮 <𝟑 <img src="https://i.postimg.cc/BbPgKh9M/IMG_1518.gif" />
+  
+![alt text](https://files.catbox.moe/98pjn6.png)
 </p>
 
 ---
